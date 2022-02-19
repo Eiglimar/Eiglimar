@@ -5,7 +5,7 @@
 - 🌱 I’m currently learning a lot of stuff like, philosophy, history, Psychology really intesting things also i have a passion at arts, music and all that stuff, 
 and as developer, trying to keep in touch with all the market demands as webdeveloper to survive,and try to have money to do things that i like,
 like.... live without anxiety about the world that we are(i´m here in brazil remember?) and the worries about tomorrow, but i can smile and talk normally(:D), 
-maybe i will have to do something at work. 
+maybe i will have to do something at work tomorrow... 
 
 - 💞️ I’m looking to collaborate on any kind of investigation as a webdev,new tech and cool things(do u know Socrates or the principle of the aesthetics?).
 
